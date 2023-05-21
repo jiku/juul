@@ -8,6 +8,14 @@ M!!!!!!!!!M!!!@protonmail.com / B[rest lowercase, something about lines][Last tw
 
 Hope you're all ok.
 
+2023/05/21
+
+Back in (through 'resetting' e@) but lost data (long story).
+If I didn't? share it there's more on Twitter (j... some stuff to inform you when I couldn't get on here, or actively d...).
+Still emailed a lot to a different PM account but explicably stopped around a month ago.
+Would've made it more accessible but 20/80 rule because a lot of other stuff and this, as mich as I want/ed to connect, unclear.
+Hope you're doing ok skattje.
+
 2021/09/07
 
 The above is full. :S Sent too many images. I'll make a new one that's the same but MM2 tomorrow? If I can remember the password. Hope everyone and -thing is ok. If not, I'll let you know here what it could be.
